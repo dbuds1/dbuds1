@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dbuds1
+- 👀 I’m interested in startups, venture capitalism, crypto.
+- 🌱 I’m currently learning cool things.
+- 💞️ I’m looking to collaborate on making cool things.
